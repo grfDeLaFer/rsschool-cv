@@ -1,3 +1,3 @@
-https://grDeLaFer.github.io/rsschool-cv/cv
+https://grfDeLaFer.github.io/rsschool-cv/cv
 
-https://grDeLaFer.github.io/rsschool-cv/
+https://grfDeLaFer.github.io/rsschool-cv/
